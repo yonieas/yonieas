@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently looking for a job<br>🌱 I’m currently learning Web Development<br>💬 Ask me about
+🔭 I’m currently looking for a full-time job<br>💬 Ask me about
 
 
 ## 🌐 Socials:
